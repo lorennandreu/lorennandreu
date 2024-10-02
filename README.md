@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lorennandreu
+- 👀 I’m interested in cats, stars and various fandoms
+- 🌱 I’m currently learning to socialize and code
+- 💞️ I’m looking to collaborate on any type of project
+- 📫 How to reach me: send me an email and i might read it
+- 😄 Pronouns: she/he/they
+- ⚡ Fun fact: I think it's easier to code HTML, but i'm open to work with CSS as well
